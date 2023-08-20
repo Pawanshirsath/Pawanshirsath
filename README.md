@@ -36,7 +36,7 @@ I believe in the power of continuous learning and staying updated with the lates
 
 ## 📫 Let's Connect
 
-I'm always eager to connect with fellow learners, creators, and technologists. Feel free to reach out to me on [LinkedIn](#) or drop me an email at [your@email.com](mailto:your@email.com).
+I'm always eager to connect with fellow learners, creators, and technologists. Feel free to reach out to me on [LinkedIn](https://www.linkedin.com/in/pawan-shirsath-402752221/) or drop me an email at [realpawanshirsath@gmail.com](mailto:realpawanshirsath@gmail.com).
 
 Looking forward to new opportunities and collaborations!
 
